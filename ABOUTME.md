@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sebastianz2000x
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning lua
+- 💞️ I’m looking to collaborate on roblox studio
+- 📫 How to reach me: Discord - coffeecactusskull
+- 😄 Pronouns: He/Him
